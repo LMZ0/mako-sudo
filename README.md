@@ -1,5 +1,5 @@
-- 👋 Hey there, I’m @mako-sudo. I'm good, thanks for asking. I like playing rhythm games, and shooter games. 
+- 👋 Hey there, I’m @LMZ0. I'm good, thanks for asking. I like playing rhythm games, and shooter games. 
 - 👀 I’m currently trying to learn Github
 - 🌱 Not doing anything yet, besides finding my way around the place
 - 💞️ I’m looking to collaborate on anything, after having the proper experience
-- 📫 Contact me via Discord or Twitter; Mako.#6969| Twitter: @real_mako 
+- 📫 Contact me via Discord or Twitter; LMZ0#6969| Twitter: @LMZ0_
